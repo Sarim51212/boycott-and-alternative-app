@@ -1,0 +1,1 @@
+# boycott-and-alternative-app
